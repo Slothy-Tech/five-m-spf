@@ -146,6 +146,4 @@ Need help?
 
 ---
 
-## 🔎 SEO Keywords (for discoverability)
-
 `fivem hwid spoofer`, `rockstar hwid bypass`, `gta v hardware ban fix`, `undetected fivem spoofer`, `fivem ban reset tool`, `fivem spoof permanent`, `fivem spoofer 2025`, `fivem unban method`, `bypass rockstar ban`
